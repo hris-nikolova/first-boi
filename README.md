@@ -1,5 +1,5 @@
 # first-boi
 
-##first repo tehe~
+## first repo tehe~
 
 The first repo ever that repo-ed on mah profile. Hurrah!
